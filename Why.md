@@ -1,0 +1,1 @@
+This shit is like my folder for random things and program I just make for fun or boredom so yeah.
